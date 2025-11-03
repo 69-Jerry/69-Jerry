@@ -1,5 +1,5 @@
 # 💫 About Me:
-I’m currently learning To be Extroverted<br><br>I’m looking to collaborate on any cool project<br><br>I’m looking for help with Frontend Design<br><br>All of my projects are available on my portfolio.<br><br>Ask me about Software Related Stuff <br><br>Fun fact about Coding is, its 95% thinking and 5% coding
+I’m an Introvert<br><br>I’m looking to collaborate on any cool project<br><br>I’m looking for help with Frontend Design<br><br>All of my projects are available on my portfolio.<br><br>Ask me about Software Related Stuff <br><br>Fun fact about Coding is, its 95% thinking and 5% coding
 
 
 ## 🌐 Socials:
